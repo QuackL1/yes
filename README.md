@@ -1,7 +1,7 @@
-# School Heaven
+# who?
 
 **About**<br>
-ur bad
+bryce robinson scammed me
 <br><br>
 **My Socials**<br>
 Discord: https://discord.com/invite/seWhGy6HWQ<br>
